@@ -11,3 +11,5 @@
 -------------------------------------------------------------------------
 
 I'll become a software engineer in a year
+
+i wanna be successful, rich and famous
